@@ -40,4 +40,4 @@ Associate Software Engineer | Mobile Application Developer (iOS • Android • 
 ### 📫 Connect with Me
 
 - 📧 Email: sudeshna.it.aec@gmail.com  
-- 💼 LinkedIn: linkedin.com/in/sudeshna-ghosh-b62626260
+- 💼 LinkedIn: www.linkedin.com/in/sudeshna-ghosh-b62626260
